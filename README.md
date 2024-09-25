@@ -1,2 +1,2 @@
 - 👋 Hi, it's @BabyBatStudio
-- 👀 Indie game studio based on Barcelona :)
+- 👀 Indie game studio based in Barcelona :)
